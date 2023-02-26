@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @alex-sandalov
 - https://tproger.ru/author/?id=45677
+- готовлюсь к егэ
