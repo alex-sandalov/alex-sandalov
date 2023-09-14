@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @alex-sandalov
-- [tproger](https://tproger.ru/author/45677)
+
